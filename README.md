@@ -7,7 +7,7 @@
 
 - 📫 How to reach me *honeycse472@gmail.com*
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1haAYpkdYc36ggAYRxHqnr_DRoG4s6wz0/view](https://drive.google.com/file/d/1haAYpkdYc36ggAYRxHqnr_DRoG4s6wz0/view)
+- 📄 Know about my experiences [https://ggle.io/7Jck](Cv Of Syeda Ummay Honey)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
